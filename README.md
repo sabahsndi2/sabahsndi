@@ -1,0 +1,2 @@
+# sabahsndi
+Www.kurdish.live 
